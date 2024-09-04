@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @keerthispg
 - 👀 I’m interested in learing new coures and updating my skills!
-- 🌱 I’m currently learning 1 st year btech. couse cse (ai and ml )2024 batch !
+- 🌱 I’m currently learning 1 st year btech. couse cse (ai and ml )2024-2028 batch !
 - 💞️ I’m looking to collaborate on learing the new programs 
 - 📫 How to reach me - gmail;keerthiispg@gmail.com
 - 😄 Pronouns: bhuvana
